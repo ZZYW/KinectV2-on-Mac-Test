@@ -1,2 +1,1 @@
-Sketch for Artist <strong>Antoine Catala</strong>
-
+Sketch for Artist Antoine Catala
